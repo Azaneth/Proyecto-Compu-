@@ -1,2 +1,3 @@
 # Proyecto-Compu-
-Aquí vas a poner la intro y todo eso
+Aquí vas a poner la intro y todo eso- okey mama huevo
+
